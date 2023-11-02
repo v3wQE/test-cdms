@@ -37,10 +37,10 @@ Time Line Ep.12 0:00:00 Ending
 https://www.nung2hdd.com/the-uncanny-counter-season-2-end-new/
 start watching 25 ตุลาคม,October 2566,2023 watch end 27 ตุลาคม,October 2566,2023
 
-6.Sweet Home
+6.Doona ดูนา ไอดอลสาวข้างบ้าน (2023) 
 Time Line Ep.1 0:00:00 Not Ending yet
-https://www.movie-19.com/2020/12/21/sweet-home-netflix-2020-%e0%b8%aa%e0%b8%a7%e0%b8%b5%e0%b8%97%e0%b9%82%e0%b8%ae%e0%b8%a1-ep-1/
-not starting yet
+[https://www.movie-19.com/2020/12/21/sweet-home-netflix-2020-%e0%b8%aa%e0%b8%a7%e0%b8%b5%e0%b8%97%e0%b9%82%e0%b8%ae%e0%b8%a1-ep-1/](https://www.dooseries4k.com/2023/10/21/doona-%e0%b8%94%e0%b8%b9%e0%b8%99%e0%b8%b2-%e0%b9%84%e0%b8%ad%e0%b8%94%e0%b8%ad%e0%b8%a5%e0%b8%aa%e0%b8%b2%e0%b8%a7%e0%b8%82%e0%b9%89%e0%b8%b2%e0%b8%87%e0%b8%9a%e0%b9%89%e0%b8%b2%e0%b8%99-2023-netfl/)https://www.dooseries4k.com/2023/10/21/doona-%e0%b8%94%e0%b8%b9%e0%b8%99%e0%b8%b2-%e0%b9%84%e0%b8%ad%e0%b8%94%e0%b8%ad%e0%b8%a5%e0%b8%aa%e0%b8%b2%e0%b8%a7%e0%b8%82%e0%b9%89%e0%b8%b2%e0%b8%87%e0%b8%9a%e0%b9%89%e0%b8%b2%e0%b8%99-2023-netfl/
+start watching 2 พฤศจิกายน,November Not  Ending yet
 
 7.It's okay not to be okay
 Time Line Ep.1 0:00:00 Not Ending yet
