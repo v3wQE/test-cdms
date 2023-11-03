@@ -38,9 +38,9 @@ https://www.nung2hdd.com/the-uncanny-counter-season-2-end-new/
 start watching 25 ตุลาคม,October 2566,2023 watch end 27 ตุลาคม,October 2566,2023
 
 6.Doona ดูนา ไอดอลสาวข้างบ้าน (2023) 
-Time Line Ep.2 0:45:00 Not Ending yet
+Time Line Ep.9 0:00:00 Ending
 https://www.dooseries4k.com/2023/10/21/doona-%e0%b8%94%e0%b8%b9%e0%b8%99%e0%b8%b2-%e0%b9%84%e0%b8%ad%e0%b8%94%e0%b8%ad%e0%b8%a5%e0%b8%aa%e0%b8%b2%e0%b8%a7%e0%b8%82%e0%b9%89%e0%b8%b2%e0%b8%87%e0%b8%9a%e0%b9%89%e0%b8%b2%e0%b8%99-2023-netfl/
-start watching 2 พฤศจิกายน,November Not  Ending yet
+start watching 2 พฤศจิกายน,November 2023,2566 watch end 3 พฤศจิกายน,November 2023,2566
 
 7.It's okay not to be okay
 Time Line Ep.1 0:00:00 Not Ending yet
